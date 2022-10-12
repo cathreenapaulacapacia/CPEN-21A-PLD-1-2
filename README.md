@@ -1,2 +1,2 @@
 # CPEN-21A-PLD-1-2
-Repository of CAPACIA, Cathreena Paula G.
+Repository of Capacia, Cathreena Paula G.
